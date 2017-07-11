@@ -1,1 +1,0 @@
-# itisnotcommonsense.github.io
